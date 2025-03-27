@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **nayansrivastav21@gmail.com**
 
-- ⚡ Fun fact **I am very funny**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
